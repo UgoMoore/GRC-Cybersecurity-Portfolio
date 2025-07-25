@@ -56,6 +56,9 @@ This portfolio is tied to my 3-year certification and learning plan with the fol
 ## 🔁 Connect With Me
 
 You can follow my LinkedIn for biweekly project drops and learning updates!  
-📌 [LinkedIn.com/in/UgoMoore](#)
+📌 **connect with me on [LinkedIn](https://www.linkedin.com/in/ugomoore)** 
 
 ---
+
+Please feel free to or reach out directly. I am open to internships, entry-level roles, or apprenticeships.
+
